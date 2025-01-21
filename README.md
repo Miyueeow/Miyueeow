@@ -5,8 +5,7 @@
 - 📫 How to reach me artscherries@gmail.com...
 - 😄 Pronouns: Mi-yeow...
 - ⚡ Fun fact: I love afternoon nap!  ...
-- ## Connect with Me
-- Discord: miyuu98
+- ## Connect with Me: Discord: @miyuu98
 
 
 <!---
