@@ -5,6 +5,9 @@
 - 📫 How to reach me artscherries@gmail.com...
 - 😄 Pronouns: Mi-yeow...
 - ⚡ Fun fact: I love afternoon nap!  ...
+- ## Connect with Me
+- Discord: miyuu98
+
 
 <!---
 Miyueeow/Miyueeow is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
